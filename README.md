@@ -1,2 +1,2 @@
 
-Hi there Iam Jheel Shah 👋
+Hi there I am Jheel Shah 👋
